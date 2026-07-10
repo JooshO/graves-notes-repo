@@ -1,0 +1,2 @@
+[[Eulogist]]
+Theodore Hale

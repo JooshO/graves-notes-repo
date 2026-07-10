@@ -1,0 +1,1 @@
+Palintine is non-magical

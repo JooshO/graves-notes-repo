@@ -1,0 +1,1 @@
+Now a spirit attached to [[Theo]]. Deceased. Was referred to as a "Jack of All Trades". Source of the Guidance spell.
