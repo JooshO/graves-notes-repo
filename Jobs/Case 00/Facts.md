@@ -18,7 +18,7 @@ Follow-ups from initial entry.
 	1. He is the one in the vision.
 2. Determine the employment and position of [[Jeoorge Oafson]]
 3. Investigate the formal publications of [[Phillip Drinker]], namely, those where he appears as the primary author
-4. Investigate the [[iron Lung]]
+4. Investigate the [[Iron Lung]]
 
 
 
