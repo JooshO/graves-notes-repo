@@ -104,7 +104,7 @@ Dakota tries to poison Amon, nothing much happens
 Quinn hits the funny number. Everyone feels the ground shake with the thundering hooves (spiritual) of warhorses led a torchbearing teenager in clay armor (Stephen).
 Clay badger animates to be a real badger who hits Amon
 
-Femur pops in and casts cloudkill. Counterspell clusterfuck leads to the spell not firing.
+Femur pops in and casts cloudkill. Counterspell clusterfuck leads to the spell not firing. (Theo counterspells, Femur counterspells, Atorn counterspells)
 
 Bodak's attack, hitting Atorn. Then Amon hits Atorn with a spell that deals tons of damage. His eardrums burst as he feels the weight of centuries of war. Amon calls zombies, burning up in anima flashes. These do a tight burst aoe. That anima starts to restitch his muscles on his arms.
 
@@ -122,13 +122,15 @@ A maximized Rau fireball starts to curl Amon in itself as he immolates. Rau does
 
 -------- Round 3 ------
 
+AMON RESPLENDENT
+
 A raven arrives with a sending stone. The sending stone blips between different timelines - 3x portents. Above and Below scattered again. Also casts telekinesis.
 
 Dakota tidal waves a large swath of zombies.
 
 Quinn's turn - Stephen attacks a Bodak. Badger attacks Bodak. Quinn casts Wither and Bloom on the Bodak
 
-This is a planar nexus/leyline - where the planes are the thinnest. Something has to change about being underestimated all the time. Above and below - it's all the same. Keeran achieves a limited degree of complete actualization. Fading or Resplendent as bonus action. Can save out of Fading/Resplendent. All damage is Absolute. A degree of full movement through above and below. Above and Below do not deal damage when the stacks fall off. He steps above, killing Am Tyr's image and then snaps back, killing a Bodak.
+This is a planar nexus/leyline - where the planes are the thinnest. Keeran thinks back to all the times people have looked down on him - college, the fighting pit, the crew. Something has to change about being underestimated all the time. Above and below - it's all the same. Keeran achieves a limited degree of complete actualization. Fading or Resplendent as bonus action. Can save out of Fading/Resplendent. All damage is Absolute. A degree of full movement through above and below. Above and Below do not deal damage when the stacks fall off. He steps above, killing Am Tyr's image with a heavy kick and then snaps back, killing a Bodak.
 
 The Bodaks do some attacking.
 Amon casts *Present Tense*, then hits Keeran with *A Reminder*.
@@ -156,7 +158,7 @@ Recalling his home, Rau is touched by his Goddess (thumb -> forehead)
 Rau throws a sixfold scoring blast with Rey-Rey-Rey-Rey-Rey-Rey, destroying Ramidius and returning us to the above.
 
 ---------------------- Round 4 ---------------------------
-Atorn casts lightning bolt and stops turn.
+Atorn casts lightning bolt and stops the clock.
 
 The Keeper smiles down on Dakota, with a sense of a bee-utiful home. The bees roll all saves and attacks with advantage. Everyone is under beacon of hope - max heals and adv on death saves/wis saves.
 Dakota summons a large bee.
@@ -183,13 +185,13 @@ He legendary actions (2) to knock down Atorn and drain his anima, but Theo casts
 Rau blips around to burn at Bodak and Amon Fading, also putting Tarazed 2 death saves into the dirt. This brings down the Bodak. Cut into Amon with the scimitar. Amon retaliates, dropping Rau.
 
 -------------------------- Round 5 --------------------------------
-Atorn snaps his staff to send it back in time. Time stops. He: rolls back the clock, stops time, stabilizes Jasper. Then, time ravage on Amon - burns legendary resistance to undo a portent dice. Ramidius pulls us below. *Down is the New Up* - dumping Jasper into the void and costing Rau's rey-reys to keep Rau out of the void. Dakota was kicked into the void, falling near an unconscious Jasper.
+Atorn snaps his staff to send it back in time. Time stops. He: rolls back the clock, stops time, stabilizes Jasper. Then, time ravage on Amon - burns legendary resistance to undo a portent dice. Ramidius pulls many below. *Down is the New Up* - dumping Jasper into the void and costing Rau's rey-reys to keep Rau out of the void. Dakota was kicked into the void, falling near an unconscious Jasper.
 
 Dakota uses Mass Cure Wounds to pick up the people in the below but is falling, as is Jasper. Dakota becomes an eagle and carries Jasper up.
 
 Quinn summons two badgers that attack Amon.
 
-Keeran headbutts him into fading then slams him with a portent enhanced crush to knock 2 saves off
+Keeran headbutts him into fading then slams him with a portent enhanced crush to knock 2 saves off. (Forced nat 1 death save)
 
 Am Tyr pulls Wilward above.
 
